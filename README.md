@@ -98,7 +98,7 @@ Acredito que a evolução na programação acontece através da prática, da res
 ### 📫 Vamos nos conectar?
 
 - **GitHub:** [@dowglasSantos](https://github.com/dowglasSantos)
-- **LinkedIn:** [Adicione seu LinkedIn aqui](https://www.linkedin.com/in/douglas-santos01/)
+- **LinkedIn:** [Douglas Santos](https://www.linkedin.com/in/douglas-santos01/)
 
 ---
 
